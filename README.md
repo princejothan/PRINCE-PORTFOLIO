@@ -5,6 +5,8 @@ Hi, I’m Prince Jothan, a passionate graphic designer with over 5 years of expe
 
 I am proficient in Adobe Photoshop, and CorelDRAW and I have a strong foundation in typography, color theory, and layout design. With experience working with diverse clients, from startups to established brands, I have created successful designs that have increased engagement and brand visibility.
 
+---
+
 ### GRAPHIC DESIGNS WITH ADOBE PHOTOSHOP
 As a graphic designer, I utilize Adobe Photoshop for its unparalleled capabilities in image manipulation and graphic design. This tool empowers me to create visually compelling designs that captivate audiences.
 
