@@ -3,7 +3,9 @@
 [About Me](#about-me)
 
 [GRAPHIC DESIGNS WITH ADOBE PHOTOSHOP](#graphic-designs-with-adobe-photoshop)
+
 [GRAPHIC DESIGNS WITH COREL DRAW](#graphic-designs-with-corel-draw)
+
 ### About Me
 Hi, I’m Prince Jothan, a passionate graphic designer with over 5 years of experience specializing in branding, digital marketing, and illustration. I believe that great design tells a story. My goal is to create visually compelling designs that not only look good but also communicate effectively and resonate with audiences.
 
