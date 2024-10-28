@@ -1,4 +1,4 @@
-##                                                                               PRINCE JOTHAN PORTFOLIO
+##                                                                              PRINCE JOTHAN PORTFOLIO
 ### About Me
 Hi, I’m Prince Jothan, a passionate graphic designer with over 5 years of experience specializing in branding, digital marketing, and illustration. I believe that great design tells a story. My goal is to create visually compelling designs that not only look good but also communicate effectively and resonate with audiences.
 
@@ -9,10 +9,10 @@ As a graphic designer, I utilize Adobe Photoshop for its unparalleled capabiliti
 
 In a recent project for Awalife 9ja, Awanneds and Ikkonect I enhanced product images for a marketing campaign, resulting in a significant boost in customer engagement. My design workflow typically includes:
 
-# Importing images and organizing layers for clarity.
-# Retouching and editing to achieve the desired look and feel.
-# Integrating text and graphics to create cohesive designs.
-# Finalizing and exporting files for both print and digital platforms.
+- Importing images and organizing layers for clarity.
+- Retouching and editing to achieve the desired look and feel.
+- Integrating text and graphics to create cohesive designs.
+- Finalizing and exporting files for both print and digital platforms.
 Photoshop has been instrumental in delivering high-quality results for my clients. 
 
 Explore my designs to see how I can help bring your vision to life!
