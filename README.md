@@ -52,3 +52,4 @@ CorelDRAW has been instrumental in achieving impactful results for my clients, a
 
 
 
+![WhatsApp Image 2024-10-28 at 13 21 29](https://github.com/user-attachments/assets/2d34ee76-51a4-4772-b956-37e497f86d3c)
