@@ -11,14 +11,14 @@
 
 [GRAPHIC DESIGNS WITH COREL DRAW](#graphic-designs-with-corel-draw)
 
-### ABOUT ME
+## ABOUT ME
 Hi, I’m Prince Jothan, a passionate graphic designer with over 5 years of experience specializing in branding, digital marketing, and illustration. I believe that great design tells a story. My goal is to create visually compelling designs that not only look good but also communicate effectively and resonate with audiences.
 
 I am proficient in Adobe Photoshop, and CorelDRAW and I have a strong foundation in typography, color theory, and layout design. With experience working with diverse clients, from startups to established brands, I have created successful designs that have increased engagement and brand visibility.
 
 ---
 
-### GRAPHIC DESIGNS WITH ADOBE PHOTOSHOP
+## GRAPHIC DESIGNS WITH ADOBE PHOTOSHOP
 As a graphic designer, I utilize Adobe Photoshop for its unparalleled capabilities in image manipulation and graphic design. This tool empowers me to create visually compelling designs that captivate audiences.
 
 In a recent project for Awalife 9ja, Awanneds and Ikkonect I enhanced product images for a marketing campaign, resulting in a significant boost in customer engagement. My design workflow typically includes:
@@ -46,7 +46,7 @@ Explore my designs to see how I can help bring your vision to life!
 
 ---
 
-### GRAPHIC DESIGNS WITH COREL DRAW
+## GRAPHIC DESIGNS WITH COREL DRAW
 
 As a graphic designer, I leverage CorelDRAW for its exceptional capabilities in vector graphic design. This tool enables me to produce high-quality, scalable graphics that are essential for creating flyers, illustrations, and marketing materials.
 
