@@ -22,3 +22,6 @@ Explore my designs to see how I can help bring your vision to life!
 
 
 ![flyer awalife](https://github.com/user-attachments/assets/122a3f70-51a7-4e96-8951-c6dc7a5dd43c)
+
+
+![Awalife quiz 1](https://github.com/user-attachments/assets/927342b1-70e3-4136-9db2-d9b3194db7a4)
