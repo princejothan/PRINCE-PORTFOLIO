@@ -1,4 +1,9 @@
 #                                                                             PRINCE JOTHAN PORTFOLIO
+
+<p align="center">
+  PRINCE JOTHAN PORTFOLIO
+</p>
+
 ---
 [About Me](#about-me)
 
