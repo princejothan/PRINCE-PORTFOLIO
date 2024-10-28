@@ -1,7 +1,7 @@
 
 
 <p align="center">
-  **PRINCE JOTHAN PORTFOLIO**
+  <strong>PRINCE JOTHAN PORTFOLIO</strong>
 </p>
 
 ---
