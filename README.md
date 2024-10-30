@@ -11,6 +11,8 @@
 
 [GRAPHIC DESIGNS WITH COREL DRAW](#graphic-designs-with-corel-draw)
 
+[CONTACT](#contact)
+
 ## ABOUT ME
 Hi, I’m Prince Jothan, a Creative and Brand Manager, Digital marketer with eight years (8) of experience and a strong command of Photoshop, CorelDRAW, and other essential tools in the creative industry. My expertise lies in shaping brands that resonate with audiences, driving their stories forward with strategy and creativity.
 
@@ -167,7 +169,8 @@ CorelDRAW has been instrumental in achieving impactful results for my clients, a
 
 I can quickly grasp the concept of the brief given to him and deliver an astonishing job without suppervison
 
-![Email](https://img.icons8.com/ios-filled/50/000000/email.png) [Your Email](mailto:princejothan@gmail.com)
+### Email: princejothan@gmail.com
+### Whatsapp: 08068894054
 
 
 
