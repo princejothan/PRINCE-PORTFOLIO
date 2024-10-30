@@ -121,7 +121,8 @@ In a recent project for Elite Solar, Layoley's lounge launch, Redeem Church, How
 CorelDraW has been instrumental in achieving impactful results for my clients, and I look forward to bringing your ideas to life. Check out my designs below!
 
 
-![WhatsApp Image 2024-10-28 at 13 21 23](https://github.com/user-attachments/assets/03c5ad52-6eea-4544-9172-316d6e10a14a)
+
+![WhatsApp Image 2024-10-30 at 16 06 30](https://github.com/user-attachments/assets/08584527-6841-46b4-901b-ea82795461bd)
 
 
 
