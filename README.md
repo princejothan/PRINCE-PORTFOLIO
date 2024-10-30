@@ -160,8 +160,14 @@ CorelDraW has been instrumental in achieving impactful results for my clients, a
 ![Untitled-4](https://github.com/user-attachments/assets/7c7e935d-3fae-4881-bf84-9e036556e6d8)
 
 
+![WhatsApp Image 2024-10-30 at 15 51 24](https://github.com/user-attachments/assets/a76ba95b-9c45-4f17-888f-f3983f0a7ca5)
 
 ![wifi-Recovered](https://github.com/user-attachments/assets/0757766d-66a4-4e06-a6bc-560d53f0c9e3)
+
+
+![WhatsApp Image 2024-10-30 at 15 48 44 (1)](https://github.com/user-attachments/assets/d1e8f532-8974-41f5-ade2-1842f301b107)
+
+![WhatsApp Image 2024-10-30 at 15 48 44](https://github.com/user-attachments/assets/0e4a09b7-7763-44a5-9f96-40fee5042760)
 
 ---
 
