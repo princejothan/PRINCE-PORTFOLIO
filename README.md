@@ -109,7 +109,7 @@ Explore my designs to see how I can help bring your vision to life!
 
 ## GRAPHIC DESIGNS WITH COREL DRAW
 
-As a creative and brand manager with Corel Draw, I leverage Corel Draw for its exceptional capabilities in vector graphic design. This tool enables me to produce high-quality, scalable graphics that are essential for creating flyers, illustrations, and marketing materials.
+As a creative and brand manager with CorelDraw, I leverage CorelDraw for its exceptional capabilities in vector graphic design. This tool enables me to produce high-quality, scalable graphics that are essential for creating flyers, illustrations, and marketing materials.
 
 In a recent project for Elite Solar, I created a design that not only captured the essence of their brand but also increased their visibility in the market. My design workflow includes:
 
@@ -118,7 +118,7 @@ In a recent project for Elite Solar, I created a design that not only captured t
 - Applying color schemes that resonate with the target audience
 - Preparing final designs for print and digital formats
   
-CorelDRAW has been instrumental in achieving impactful results for my clients, and I look forward to bringing your ideas to life. Check out my designs below!
+CorelDraW has been instrumental in achieving impactful results for my clients, and I look forward to bringing your ideas to life. Check out my designs below!
 
 
 ![WhatsApp Image 2024-10-28 at 13 21 23](https://github.com/user-attachments/assets/03c5ad52-6eea-4544-9172-316d6e10a14a)
