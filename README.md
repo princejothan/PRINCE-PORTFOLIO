@@ -162,4 +162,9 @@ CorelDRAW has been instrumental in achieving impactful results for my clients, a
 ![Tower of Refuge](https://github.com/user-attachments/assets/20d7642e-d73e-47b0-9329-f1001411df42)
 
 
+![Backup_of_thanks giving green](https://github.com/user-attachments/assets/39a1f5c3-4a05-42c1-8d48-bce0c3eb2d10)
+
+
+
+
 
