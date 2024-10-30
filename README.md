@@ -25,7 +25,7 @@ This portfolio highlights projects where I’ve led the charge on creative direc
 ## GRAPHIC DESIGNS WITH ADOBE PHOTOSHOP
 As a creative and brand manager with Adobe Photoshop, I utilize Adobe Photoshop for its unparalleled capabilities in image manipulation and graphic design. This tool empowers me to create visually compelling designs that captivate audiences.
 
-In a recent project for Awalife 9ja, Awanneds and Ikkonect I enhanced product images for a marketing campaign, resulting in a significant boost in customer engagement. My design workflow typically includes:
+In a recent project for Awalife naija, Awaneeds and Ikonecct I enhanced product images for a marketing campaign, resulting in a significant boost in customer engagement. My design workflow typically includes:
 
 - Importing images and organizing layers for clarity.
 - Retouching and editing to achieve the desired look and feel.
