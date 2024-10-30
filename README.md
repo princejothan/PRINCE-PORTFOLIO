@@ -12,7 +12,7 @@
 [GRAPHIC DESIGNS WITH COREL DRAW](#graphic-designs-with-corel-draw)
 
 ## ABOUT ME
-Hello, I’m Prince Jothan, a Creative and Brand Manager, Digital marketing with seven years of experience and a strong command of Photoshop, CorelDRAW, and other essential tools in the creative industry. My expertise lies in shaping brands that resonate with audiences, driving their stories forward with strategy and creativity.
+Hello, I’m Prince Jothan, a Creative and Brand Manager, Digital marketing with eight years of experience and a strong command of Photoshop, CorelDRAW, and other essential tools in the creative industry. My expertise lies in shaping brands that resonate with audiences, driving their stories forward with strategy and creativity.
 
 I’m skilled at combining visual aesthetics with strategic insights to build strong, impactful brand identities. My experience ranges from digital campaigns and branding initiatives to content direction and team collaboration, where I ensure each project achieves both creative and business objectives.
 
