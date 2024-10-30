@@ -59,6 +59,38 @@ Explore my designs to see how I can help bring your vision to life!
 
 ![elite car](https://github.com/user-attachments/assets/8e6c9136-8919-4bcf-b6b5-e0580f182a9f)
 
+
+![Elite cars](https://github.com/user-attachments/assets/f642114b-417c-40a3-8680-dcde444b9e72)
+
+![ffffff](https://github.com/user-attachments/assets/e1c5f3d1-f4db-410c-be16-32d1b43d4f9a)
+
+
+![flyer priint](https://github.com/user-attachments/assets/94d41059-7da6-4eb0-885e-626785fadda5)
+
+
+![gazebo 1](https://github.com/user-attachments/assets/06b2d161-6116-4f13-bfae-f4a887dafbab)
+
+![gazebo 2](https://github.com/user-attachments/assets/64726098-35c2-4e61-b283-2a369cc5b458)
+
+
+![independent day](https://github.com/user-attachments/assets/21dbd695-b4b9-48b8-ace5-786e57c59633)
+
+
+
+![love fuse adds4](https://github.com/user-attachments/assets/b1279077-def1-4c47-aae1-bb6e6e793b6d)
+
+
+![love fuse ads](https://github.com/user-attachments/assets/73a48250-336b-4e99-a36c-b4389161c0b1)
+
+
+![monday car elite](https://github.com/user-attachments/assets/7502c6db-ad0d-423c-b2c5-9fe2d93fcae0)
+
+
+
+![ox Drinkk](https://github.com/user-attachments/assets/43027736-62dd-4e28-a5c1-491b4c64b8ec)
+
+
+
 ---
 
 ## GRAPHIC DESIGNS WITH COREL DRAW
