@@ -14,26 +14,25 @@
 [CONTACT](#contact)
 
 ## ABOUT ME
-Hi, I am Prince Jothan, Creative director and digital marketer, with eight years (8) experience and a strong command of Photoshop, CorelDRAW, and other essential tools in the creative industry. My expertise lies in shaping brands that resonate with audiences, driving their stories forward with strategy and creativity.
+Hi, I am Prince Jothan, Creative Director and Digital Marketer, with eight years (8) experience and a strong command of Photoshop, CorelDRAW, and other essential tools in the creative industry. My expertise lies in shaping brands that resonate with audiences, driving their stories forward with strategy and creativity.
 
-I am skilled at combining visual aesthetics with strategic insights to build strong and impactful brand identities. My experience ranges from digital campaigns and branding initiatives to content direction and team collaboration, where I ensure every project achieves both creative and business objectives.
+I am skilled at combining visual aesthetics with strategic insights to build strong and impactful brand identities. My experience ranges from digital campaigns and branding initiatives to content direction and team collaboration, where I ensure every project achieve both creative and business objectives.
 
-This portfolio highlights projects where I have led the charge on creative direction, visual storytelling, and brand strategy. From conceptualizing visuals to delivering consistent branding across platforms, I am committed to delivering exceptional results that elevate each brand’s presence and engage audiences effectively.
+This portfolio highlights projects where I have led the charge on creative direction, visual storytelling, and brand strategy. From conceptualizing visuals to delivering consistent branding across platforms, I am committed to delivering exceptional results that elevate every brand’s presence and engage audiences effectively.
 
 ---
 
 ## GRAPHIC DESIGNS WITH ADOBE PHOTOSHOP
-As a creative director and digital marketer, I utilize Adobe Photoshop for its unparalleled capabilities in image manipulation and graphic design. This tool empowers me to create visually compelling designs that captivate audiences.
+As a Creative Director and Digital Marketer, I utilize Adobe Photoshop for its unparalleled capabilities in image manipulation and graphic design. This tool empowers me to create visually compelling designs that captivate audiences.
 
-In a recent project for Awalife Naija, Awaneeds Naija, Elite movers car, How market Naija, Love Fuse and Ikonectt I enhanced product images for a marketing campaign, resulting in a significant boost in customer engagement. My design workflow typically includes:
+In a recent project for Awalife Naija, Awaneeds Naija, Elite Movers Car, How market Naija, Love Fuse and iKonectt, I enhanced product images for a marketing campaign, resulting in a significant boost in customer engagement. My design workflow typically includes:
 
-- Importing images and organizing layers for clarity.
-- Retouching and editing to achieve the desired look and feel.
-- Integrating text and graphics to create cohesive designs.
-- Finalizing and exporting files for both print and digital platforms.
-Photoshop has been instrumental in delivering high-quality results for my clients. 
+•	Importing images and organizing layers for clarity.
+•	Retouching and editing to achieve the desired look and feel.
+•	Integrating text and graphics to create cohesive designs.
+•	Finalizing and exporting files for both print and digital platforms.
 
-Explore my designs to see how I can help bring your vision to life!
+Explore my designs to view how I can help bring your vision to life!
 
 
 ![doors pngelite](https://github.com/user-attachments/assets/5c6fd958-3523-4ccc-b713-332eefad0a7c)
@@ -110,16 +109,16 @@ Explore my designs to see how I can help bring your vision to life!
 
 ## GRAPHIC DESIGNS WITH COREL DRAW
 
-As a creative director and digital marketer, I leverage CorelDraw for its exceptional capabilities in vector graphic design. This tool enables me to produce high-quality, scalable graphics that are essential for creating flyers, illustrations, and marketing materials.
+As a Creative Director and Digital Marketer, I leverage CorelDraw for its exceptional capabilities in vector graphic design. This tool enables me to produce high-quality, scalable graphics that are essential for creating flyers, illustrations, and marketing materials.
 
-In a recent project for Elite Solar, Layoley's lounge launch, Redeem Church, How Market Naija and Ikonectt I created a design that not only captured the essence of their brand but also increased their visibility in the market. My design workflow includes:
+In a recent project for Elite Solar, Layoley’s lounge launch, The Redeem Christian Church of God, How Market Naija and iKonectt, I created a design that not only captured the essence of the brand, but also increased their visibility. My design workflow includes:
 
-- Initial concept sketches
-- Vectorizing and refining designs with precision
-- Applying color schemes that resonate with the target audience
-- Preparing final designs for print and digital formats
-  
-CorelDraW has been instrumental in achieving impactful results for my clients, and I look forward to bringing your ideas to life. Check out my designs below!
+•	Initial concept sketches
+•	Vectorizing and refining designs with precision
+•	Applying color schemes that resonate with the target audience
+•	Preparing final designs for print and digital formats
+
+CorelDraw has been instrumental in achieving impactful results for my clients, and I look forward to bringing your ideas to life. Check out my designs below!
 
 
 
@@ -178,7 +177,7 @@ CorelDraW has been instrumental in achieving impactful results for my clients, a
 
 ## CONTACT
 
-I can quickly grasp the concept of the brief given to me and deliver an astonishing job without suppervison
+I can quickly grasp the concept of the brief given to me and deliver an astonishing job without supervision.
 
 ### Email: princejothan@gmail.com
 ### Whatsapp: 08068894054
