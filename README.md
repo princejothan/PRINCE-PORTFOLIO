@@ -37,7 +37,8 @@ Explore my designs to see how I can help bring your vision to life!
 
 
 
-![flyer awalife](https://github.com/user-attachments/assets/122a3f70-51a7-4e96-8951-c6dc7a5dd43c)
+
+![WhatsApp Image 2024-10-30 at 10 43 49](https://github.com/user-attachments/assets/794ff924-34ac-41b0-af41-f3ece030cd33)
 
 
 
