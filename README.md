@@ -178,7 +178,7 @@ CorelDraW has been instrumental in achieving impactful results for my clients, a
 
 ## CONTACT
 
-I can quickly grasp the concept of the brief given to him and deliver an astonishing job without suppervison
+I can quickly grasp the concept of the brief given to me and deliver an astonishing job without suppervison
 
 ### Email: princejothan@gmail.com
 ### Whatsapp: 08068894054
