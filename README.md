@@ -53,10 +53,6 @@ Explore my designs to see how I can help bring your vision to life!
 ![eiddd](https://github.com/user-attachments/assets/11a7a15d-73d3-452f-bae0-4bf460028877)
 
 
-
-![eiddd](https://github.com/user-attachments/assets/355a42f3-cd09-4250-b22a-6961a010ec0d)
-
-
 ![elite car](https://github.com/user-attachments/assets/8e6c9136-8919-4bcf-b6b5-e0580f182a9f)
 
 
@@ -88,6 +84,53 @@ Explore my designs to see how I can help bring your vision to life!
 
 
 ![ox Drinkk](https://github.com/user-attachments/assets/43027736-62dd-4e28-a5c1-491b4c64b8ec)
+
+
+![paris](https://github.com/user-attachments/assets/a4e9128a-efba-4fd0-97b3-4977c397b958)
+
+
+
+![oxbar food](https://github.com/user-attachments/assets/bd18610e-d3f2-4e66-a46f-b00a3270448c)
+
+
+![place your business](https://github.com/user-attachments/assets/4fe77725-3c93-43b1-ac37-6ac8d98fd254)
+
+
+![radio home](https://github.com/user-attachments/assets/3b5b7fa9-10dc-41f8-b8a3-7b15dfeb9a0d)
+
+
+![roll up ikonecttt new](https://github.com/user-attachments/assets/f8ccaff8-790c-422a-8d92-f2795c2dfb8f)
+
+
+![salahhhhhhhhh](https://github.com/user-attachments/assets/4001d95c-6e9e-48fb-b22c-7c235c77dfa8)
+
+
+![stream laptop](https://github.com/user-attachments/assets/04053000-ab51-49a9-ac5a-231e72ab176e)
+
+
+
+![The future](https://github.com/user-attachments/assets/046ae857-7f33-4448-acbf-5944ae5670d0)
+
+
+![time clock_](https://github.com/user-attachments/assets/c324ca42-d7de-484a-9bb9-31d4f622646f)
+
+
+![ultra fast](https://github.com/user-attachments/assets/aba7a065-8844-4ecb-b2b3-eaf4bb03e166)
+
+
+![unlimited internet steeze](https://github.com/user-attachments/assets/51187b74-b3b8-499c-bdc8-727274288b72)
+
+![unlock](https://github.com/user-attachments/assets/33f46d5a-faa7-4796-9bb1-8cd62ccfc947)
+
+
+![Untitled-4](https://github.com/user-attachments/assets/7c7e935d-3fae-4881-bf84-9e036556e6d8)
+
+
+
+![wifi-Recovered](https://github.com/user-attachments/assets/0757766d-66a4-4e06-a6bc-560d53f0c9e3)
+
+
+
 
 
 
