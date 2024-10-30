@@ -119,9 +119,6 @@ In a recent project for Elite Solar, I created a design that not only captured t
 CorelDRAW has been instrumental in achieving impactful results for my clients, and I look forward to bringing your ideas to life. Check out my designs below!
 
 
-![WhatsApp Image 2024-10-28 at 13 21 21 (1)](https://github.com/user-attachments/assets/220a41cf-251e-47af-b354-de9b7cef4306)
-
-
 ![WhatsApp Image 2024-10-28 at 13 21 23](https://github.com/user-attachments/assets/03c5ad52-6eea-4544-9172-316d6e10a14a)
 
 
