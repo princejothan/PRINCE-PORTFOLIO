@@ -169,6 +169,9 @@ CorelDraW has been instrumental in achieving impactful results for my clients, a
 
 ![WhatsApp Image 2024-10-30 at 15 48 44](https://github.com/user-attachments/assets/0e4a09b7-7763-44a5-9f96-40fee5042760)
 
+
+![WhatsApp Image 2024-10-30 at 15 58 18 (1)](https://github.com/user-attachments/assets/50444484-f690-4f70-8b38-99c29c146401)
+
 ---
 
 ## CONTACT
