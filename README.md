@@ -167,7 +167,8 @@ CorelDRAW has been instrumental in achieving impactful results for my clients, a
 
 I can quickly grasp the concept of the brief given to him and deliver an astonishing job without suppervison
 
-[![Email](https://path-to-your-email-icon.png)](mailto:princejothan@gmail.com)
+![Email](https://img.icons8.com/ios-filled/50/000000/email.png) [Your Email](mailto:princejothan@gmail.com)
+
 
 
 
