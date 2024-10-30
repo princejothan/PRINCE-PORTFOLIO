@@ -14,16 +14,16 @@
 [CONTACT](#contact)
 
 ## ABOUT ME
-Hi, I’m Prince Jothan, a Creative and Brand Manager, Digital marketer with eight years (8) of experience and a strong command of Photoshop, CorelDRAW, and other essential tools in the creative industry. My expertise lies in shaping brands that resonate with audiences, driving their stories forward with strategy and creativity.
+Hi, I am Prince Jothan, Creative director and digital marketer, with eight years (8) experience and a strong command of Photoshop, CorelDRAW, and other essential tools in the creative industry. My expertise lies in shaping brands that resonate with audiences, driving their stories forward with strategy and creativity.
 
-I’m skilled at combining visual aesthetics with strategic insights to build strong, impactful brand identities. My experience ranges from digital campaigns and branding initiatives to content direction and team collaboration, where I ensure each project achieves both creative and business objectives.
+I am skilled at combining visual aesthetics with strategic insights to build strong and impactful brand identities. My experience ranges from digital campaigns and branding initiatives to content direction and team collaboration, where I ensure every project achieves both creative and business objectives.
 
-This portfolio highlights projects where I’ve led the charge on creative direction, visual storytelling, and brand strategy. From conceptualizing visuals to delivering consistent branding across platforms, I’m committed to delivering exceptional results that elevate each brand’s presence and engage audiences effectively.
+This portfolio highlights projects where I have led the charge on creative direction, visual storytelling, and brand strategy. From conceptualizing visuals to delivering consistent branding across platforms, I am committed to delivering exceptional results that elevate each brand’s presence and engage audiences effectively.
 
 ---
 
 ## GRAPHIC DESIGNS WITH ADOBE PHOTOSHOP
-As a creative and brand manager, I utilize Adobe Photoshop for its unparalleled capabilities in image manipulation and graphic design. This tool empowers me to create visually compelling designs that captivate audiences.
+As a creative director and digital marketer, I utilize Adobe Photoshop for its unparalleled capabilities in image manipulation and graphic design. This tool empowers me to create visually compelling designs that captivate audiences.
 
 In a recent project for Awalife Naija, Awaneeds Naija, Elite movers car, How market Naija, Love Fuse and Ikonectt I enhanced product images for a marketing campaign, resulting in a significant boost in customer engagement. My design workflow typically includes:
 
@@ -110,7 +110,7 @@ Explore my designs to see how I can help bring your vision to life!
 
 ## GRAPHIC DESIGNS WITH COREL DRAW
 
-As a creative and brand manager, I leverage CorelDraw for its exceptional capabilities in vector graphic design. This tool enables me to produce high-quality, scalable graphics that are essential for creating flyers, illustrations, and marketing materials.
+As a creative director and digital marketer, I leverage CorelDraw for its exceptional capabilities in vector graphic design. This tool enables me to produce high-quality, scalable graphics that are essential for creating flyers, illustrations, and marketing materials.
 
 In a recent project for Elite Solar, Layoley's lounge launch, Redeem Church, How Market Naija and Ikonectt I created a design that not only captured the essence of their brand but also increased their visibility in the market. My design workflow includes:
 
