@@ -161,6 +161,11 @@ CorelDRAW has been instrumental in achieving impactful results for my clients, a
 
 ![wifi-Recovered](https://github.com/user-attachments/assets/0757766d-66a4-4e06-a6bc-560d53f0c9e3)
 
+---
+
+## CONTACT
+
+I can quickly grasp the concept of the brief given to him and deliver an astonishing job without suppervison
 
 
 
