@@ -111,7 +111,7 @@ Explore my designs to see how I can help bring your vision to life!
 
 As a creative and brand manager with CorelDraw, I leverage CorelDraw for its exceptional capabilities in vector graphic design. This tool enables me to produce high-quality, scalable graphics that are essential for creating flyers, illustrations, and marketing materials.
 
-In a recent project for Elite Solar, Redeem Church, How Market Naija and Ikonectt I created a design that not only captured the essence of their brand but also increased their visibility in the market. My design workflow includes:
+In a recent project for Elite Solar, Layoley's lounge launch, Redeem Church, How Market Naija and Ikonectt I created a design that not only captured the essence of their brand but also increased their visibility in the market. My design workflow includes:
 
 - Initial concept sketches
 - Vectorizing and refining designs with precision
