@@ -45,6 +45,15 @@ Explore my designs to see how I can help bring your vision to life!
 
 ![Awalife quiz 1](https://github.com/user-attachments/assets/927342b1-70e3-4136-9db2-d9b3194db7a4)
 
+![agege](https://github.com/user-attachments/assets/452abfb9-4263-426a-9915-2d8361b53bb1)
+
+
+![Awaneeds list](https://github.com/user-attachments/assets/2524ce03-3130-47b1-a21d-6475c7836efd)
+
+
+![Uploading bus flyer.png…]()
+
+
 ---
 
 ## GRAPHIC DESIGNS WITH COREL DRAW
