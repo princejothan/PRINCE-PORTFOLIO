@@ -103,9 +103,6 @@ Explore my designs to see how I can help bring your vision to life!
 
 
 
-
-
-
 ---
 
 ## GRAPHIC DESIGNS WITH COREL DRAW
