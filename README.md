@@ -107,7 +107,7 @@ Explore my designs to see how I can help bring your vision to life!
 
 ## GRAPHIC DESIGNS WITH COREL DRAW
 
-As a graphic designer, I leverage CorelDRAW for its exceptional capabilities in vector graphic design. This tool enables me to produce high-quality, scalable graphics that are essential for creating flyers, illustrations, and marketing materials.
+As a creative and brand manager with Adobe Photoshop, I leverage CorelDRAW for its exceptional capabilities in vector graphic design. This tool enables me to produce high-quality, scalable graphics that are essential for creating flyers, illustrations, and marketing materials.
 
 In a recent project for Elite Solar, I created a design that not only captured the essence of their brand but also increased their visibility in the market. My design workflow includes:
 
