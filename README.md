@@ -25,7 +25,7 @@ This portfolio highlights projects where I’ve led the charge on creative direc
 ## GRAPHIC DESIGNS WITH ADOBE PHOTOSHOP
 As a creative and brand manager with Adobe Photoshop, I utilize Adobe Photoshop for its unparalleled capabilities in image manipulation and graphic design. This tool empowers me to create visually compelling designs that captivate audiences.
 
-In a recent project for Awalife naija, Awaneeds and Ikonecct I enhanced product images for a marketing campaign, resulting in a significant boost in customer engagement. My design workflow typically includes:
+In a recent project for Awalife Naija, Awaneeds Naija, Elite movers car, How market Naija and Ikonectt I enhanced product images for a marketing campaign, resulting in a significant boost in customer engagement. My design workflow typically includes:
 
 - Importing images and organizing layers for clarity.
 - Retouching and editing to achieve the desired look and feel.
@@ -111,7 +111,7 @@ Explore my designs to see how I can help bring your vision to life!
 
 As a creative and brand manager with CorelDraw, I leverage CorelDraw for its exceptional capabilities in vector graphic design. This tool enables me to produce high-quality, scalable graphics that are essential for creating flyers, illustrations, and marketing materials.
 
-In a recent project for Elite Solar, I created a design that not only captured the essence of their brand but also increased their visibility in the market. My design workflow includes:
+In a recent project for Elite Solar, Redeem Church, How Market Naija and Ikonectt I created a design that not only captured the essence of their brand but also increased their visibility in the market. My design workflow includes:
 
 - Initial concept sketches
 - Vectorizing and refining designs with precision
