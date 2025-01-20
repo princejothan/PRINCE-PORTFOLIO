@@ -35,8 +35,13 @@ In a recent project for Awalife Naija, Awaneeds Naija, Elite Movers Car, How mar
 Explore my designs to view how I can help bring your vision to life!
 
 
-![doors pngelite](https://github.com/user-attachments/assets/5c6fd958-3523-4ccc-b713-332eefad0a7c)
+![weekeed what will you do](https://github.com/user-attachments/assets/7b9510b3-4cbf-4dc6-b6cd-52dd5f53fdd1)
 
+
+![fiber office](https://github.com/user-attachments/assets/d48cab16-f8c0-49ec-83e9-7cf9f63aa923)
+
+
+![cc](https://github.com/user-attachments/assets/9b28de03-f2a5-4193-bdba-8811de3553f2)
 
 
 ![WhatsApp Image 2024-10-30 at 10 43 49](https://github.com/user-attachments/assets/794ff924-34ac-41b0-af41-f3ece030cd33)
