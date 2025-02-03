@@ -110,6 +110,12 @@ Explore my designs to view how I can help bring your vision to life!
 ![WhatsApp Image 2024-10-30 at 16 15 06](https://github.com/user-attachments/assets/21194309-20db-4220-94a2-095884c4aaea)
 
 
+![office man 2png](https://github.com/user-attachments/assets/b3c06649-b44f-4f5b-a8d9-5147e35ba0c0)
+
+
+![monday motivation fade](https://github.com/user-attachments/assets/05257e46-6c2d-4c81-8054-37614aa5450f)
+
+
 ---
 
 ## GRAPHIC DESIGNS WITH COREL DRAW
@@ -178,7 +184,17 @@ CorelDraw has been instrumental in achieving impactful results for my clients, a
 
 ![WhatsApp Image 2024-10-30 at 15 58 18 (1)](https://github.com/user-attachments/assets/50444484-f690-4f70-8b38-99c29c146401)
 
+
+![flyer week post](https://github.com/user-attachments/assets/b2daadda-db9f-4e91-9c5a-345066880019)
+
+
+![fast spng](https://github.com/user-attachments/assets/d255d1fa-8354-4855-b809-4f7c00315ba1)
+
+
 ---
+
+
+
 
 ## CONTACT
 
