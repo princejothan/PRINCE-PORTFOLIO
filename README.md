@@ -115,6 +115,7 @@ Explore my designs to view how I can help bring your vision to life!
 
 ![monday motivation fade](https://github.com/user-attachments/assets/05257e46-6c2d-4c81-8054-37614aa5450f)
 
+![Uploading good fridday.png…]()
 
 ---
 
