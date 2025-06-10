@@ -117,7 +117,7 @@ Explore my designs to view how I can help bring your vision to life!
 
 ![Salah ID El KAbir-Reco](https://github.com/user-attachments/assets/ea53d4fa-206c-452b-8bad-deca93549903)
 
-![Uploading good fridday.png…]()
+![good fridday](https://github.com/user-attachments/assets/13dc0bf9-711f-44e6-b713-dc288e6e5fc1)
 
 ---
 
