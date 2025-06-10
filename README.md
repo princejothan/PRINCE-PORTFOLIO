@@ -115,6 +115,8 @@ Explore my designs to view how I can help bring your vision to life!
 
 ![monday motivation fade](https://github.com/user-attachments/assets/05257e46-6c2d-4c81-8054-37614aa5450f)
 
+![Salah ID El KAbir-Reco](https://github.com/user-attachments/assets/ea53d4fa-206c-452b-8bad-deca93549903)
+
 ![Uploading good fridday.png…]()
 
 ---
@@ -191,6 +193,11 @@ CorelDraw has been instrumental in achieving impactful results for my clients, a
 
 ![fast spng](https://github.com/user-attachments/assets/d255d1fa-8354-4855-b809-4f7c00315ba1)
 
+![Untitled-2](https://github.com/user-attachments/assets/6e65a080-348f-429c-883f-f6afdedb2808)
+
+![childrens day businez plug](https://github.com/user-attachments/assets/77fbf649-5fb2-4781-b143-2623d2da539b)
+
+![deeeeeeeeeffffeee](https://github.com/user-attachments/assets/26bbe31f-0ee4-4521-bd4e-98a6658c2b55)
 
 ---
 
